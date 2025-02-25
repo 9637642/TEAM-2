@@ -52,3 +52,5 @@ News Intros
 
 
 [Alice end video](https://drive.google.com/file/d/1LlhwWMRIDdKMNEQ_-zvq2k1AcoHKg6ZC/view?usp=drive_link)
+
+[Alexa end video](https://drive.google.com/file/d/1DFVHbs-lQzq24DHtNrQMT3qHNLbZt0w8/view?usp=share_link)
