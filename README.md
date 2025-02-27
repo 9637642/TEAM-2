@@ -59,4 +59,4 @@ News Intros
 
 [Lincoln's sport video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
 
-[Jack's sport video](https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-globalnav-goto)
+[Jack's sport video](https://drive.google.com/file/d/15fvX2fV24_cgoTJ9BU6GKq0V4VUaeAdT/view?usp=sharing)
