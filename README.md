@@ -60,3 +60,7 @@ News Intros
 [Lincoln's sport video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
 
 [Jack's sport video](https://drive.google.com/file/d/15fvX2fV24_cgoTJ9BU6GKq0V4VUaeAdT/view?usp=sharing)
+
+[Alice's sports video](![image](https://github.com/user-attachments/assets/5632a95c-f93e-4abe-9564-5a6a6e0b7218)
+
+
