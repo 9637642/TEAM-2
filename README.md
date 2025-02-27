@@ -55,4 +55,8 @@ News Intros
 
 [Alexa end video](https://drive.google.com/file/d/1DFVHbs-lQzq24DHtNrQMT3qHNLbZt0w8/view?usp=share_link)
 
+## SEGMENT
+
 [Lincoln's sport video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
+
+[Jack's sport video](https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-globalnav-goto)
