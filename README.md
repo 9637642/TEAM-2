@@ -20,8 +20,6 @@
 [sprots script](https://docs.google.com/document/d/1bEp5eyESyJlo-x42p9tUfS91G_-NGfX-p9MrurC4_MY/edit?tab=t.0)
 ![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/News%20Schedule%20(layout%20idea).png?raw=true)
 
-![sprots script](https://docs.google.com/document/d/1bEp5eyESyJlo-x42p9tUfS91G_-NGfX-p9MrurC4_MY/edit?tab=t.0)
-
 News Intros
 
 [Lincoln's Intro](https://drive.google.com/file/d/1tW8SCLG61TsXtlgNlBIR5bZqEYyoDPRi/view?usp=sharing)
