@@ -67,4 +67,6 @@ News Intros
 
 [Alexa's sports video](https://drive.google.com/file/d/1vbEcofAT-Tfrj68UytcTPjuNWq-giK8c/view?usp=sharing)
 
+[Cole's Sports Video](https://drive.google.com/file/d/1QfzaZJ3IS_2BTTzUAoYnV2-TiGz7d73X/view?usp=sharing)
+
 
