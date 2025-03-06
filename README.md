@@ -55,18 +55,18 @@ News Intros
 
 [Alexa end video](https://drive.google.com/file/d/1DFVHbs-lQzq24DHtNrQMT3qHNLbZt0w8/view?usp=share_link)
 
-## SEGMENT
+##  NEW SEGMENT Video
 
-[Lincoln's sport video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
+[Lincoln's segment video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
 
-[Jack's sport video](https://drive.google.com/file/d/1w2rsWpZvBn_pQAnU94I0JvqwMeBA9Tlk/view?usp=sharing)
+[Jack's segment video](https://drive.google.com/file/d/1w2rsWpZvBn_pQAnU94I0JvqwMeBA9Tlk/view?usp=sharing)
 
-[Alice's sports video](https://drive.google.com/file/d/1RyFa0JUsua7PGWJfvXqDjrKvIdtMyT2h/view?usp=drive_link)
+[Alice's segment video](https://drive.google.com/file/d/1RyFa0JUsua7PGWJfvXqDjrKvIdtMyT2h/view?usp=drive_link)
 
-[Oli's sport video](https://drive.google.com/file/d/1AwKY2A4VvQcfbDHU5fIbXh984zSNcXFm/view?usp=sharing)
+[Oli's segment video](https://drive.google.com/file/d/1AwKY2A4VvQcfbDHU5fIbXh984zSNcXFm/view?usp=sharing)
 
-[Alexa's sports video](https://drive.google.com/file/d/1vbEcofAT-Tfrj68UytcTPjuNWq-giK8c/view?usp=sharing)
+[Alexa's segment video](https://drive.google.com/file/d/1vbEcofAT-Tfrj68UytcTPjuNWq-giK8c/view?usp=sharing)
 
-[Cole's Sports Video](https://drive.google.com/file/d/1QfzaZJ3IS_2BTTzUAoYnV2-TiGz7d73X/view?usp=sharing)
+[Cole's segment Video](https://drive.google.com/file/d/1QfzaZJ3IS_2BTTzUAoYnV2-TiGz7d73X/view?usp=sharing)
 
-[Leah's Sports Video](https://drive.google.com/file/d/194mQJ7JsEFYLLydCKHtTLbPJcY8fjAYz/view?usp=sharing)
+[Leah's segment Video](https://drive.google.com/file/d/194mQJ7JsEFYLLydCKHtTLbPJcY8fjAYz/view?usp=sharing)
