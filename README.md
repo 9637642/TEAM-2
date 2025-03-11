@@ -13,6 +13,10 @@
 
 * Blaze- Rover
 
+* Alexa- Switch
+
+* Leah- Switch
+
 ## STORYBOARD
 
 ![Storyboard](https://github.com/9637642/TEAM-2/blob/main/Assests/1.jpg?raw=true)
