@@ -55,8 +55,10 @@ News Intros
 
 [Alexa end video](https://drive.google.com/file/d/1DFVHbs-lQzq24DHtNrQMT3qHNLbZt0w8/view?usp=share_link)
 
-##  NEW SEGMENT Video
+## SEGMENT SCRIPT
+[Teh scirpt](https://docs.google.com/document/d/1dqbiRRlLFV71N3c6d5MueOyLiF7ModTJo6v9C962AO0/edit?usp=sharing)
 
+##  NEW SEGMENT Video
 [Lincoln's segment video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
 
 [Jack's segment video](https://drive.google.com/file/d/1w2rsWpZvBn_pQAnU94I0JvqwMeBA9Tlk/view?usp=sharing)
@@ -70,3 +72,5 @@ News Intros
 [Cole's segment Video](https://drive.google.com/file/d/1QfzaZJ3IS_2BTTzUAoYnV2-TiGz7d73X/view?usp=sharing)
 
 [Leah's segment Video](https://drive.google.com/file/d/194mQJ7JsEFYLLydCKHtTLbPJcY8fjAYz/view?usp=sharing)
+
+
