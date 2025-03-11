@@ -77,4 +77,5 @@ News Intros
 
 [Leah's segment Video](https://drive.google.com/file/d/194mQJ7JsEFYLLydCKHtTLbPJcY8fjAYz/view?usp=sharing)
 
+[updated segment video](https://drive.google.com/file/d/1qOlmESWA9iEjZ0CIo1rVIi39Hyntk34M/view?usp=sharing)
 
