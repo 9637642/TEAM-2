@@ -56,7 +56,7 @@ News Intros
 [Alexa end video](https://drive.google.com/file/d/1DFVHbs-lQzq24DHtNrQMT3qHNLbZt0w8/view?usp=share_link)
 
 ## SEGMENT SCRIPT
-[Teh scirpt](https://docs.google.com/document/d/1dqbiRRlLFV71N3c6d5MueOyLiF7ModTJo6v9C962AO0/edit?usp=sharing)
+[The scirpt](https://docs.google.com/document/d/1dqbiRRlLFV71N3c6d5MueOyLiF7ModTJo6v9C962AO0/edit?usp=sharing)
 
 ##  NEW SEGMENT Video
 [Lincoln's segment video](https://drive.google.com/file/d/1LfuxEpkVcfPcA2RTW8TpqjVFtMKzPgcy/view?usp=sharing)
