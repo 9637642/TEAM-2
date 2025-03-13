@@ -79,3 +79,4 @@ News Intros
 
 [updated segment video](https://drive.google.com/file/d/1qOlmESWA9iEjZ0CIo1rVIi39Hyntk34M/view?usp=sharing)
 
+[New segment video](https://www.capcut.com/editor/2EC81E9E-5B77-4402-B7B4-ABFAB85138F7?workspaceId=7478730618814300166&spaceId=7478729803068179462&utm_medium=Product&utm_source=draftshare&utm_campaign=link)
