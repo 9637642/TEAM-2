@@ -1,21 +1,21 @@
 # Eagle Nest News Team
 
 ## TEAM MEMBERS
-* Jack- Co-director, editing
+* Jack- Story Board maker, Telepormter
 
-* Cole- Lighting Technician
+* Cole- Rover
 
-* Lincoln- Camera Operator
+* Lincoln- Shot list 
 
-* Alice- Co-director, news reporting and/or hosting
+* Alice- communications, reporting and/or hosting
 
-* Oli- Graphics Operator
+* Oli- Graphics Operator, Director
 
-* Blaze- Rover
+* Blaze- Camera and Lighting Opperator
 
-* Alexa- Switch
+* Alexa- Editor, Time manegment
 
-* Leah- Switch
+* Leah- Editor, script writer
 
 ## STORYBOARD
 
