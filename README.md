@@ -18,7 +18,7 @@
 * Leah- Editor, script writer
 
 ## FINAL VIDEO
-![Final Video](https://drive.google.com/file/d/1JyqKwVlvxQ3hBbx1LoQ2QUkLohYakEMO/view?usp=sharing)
+![Final Video](https://drive.google.com/file/d/1JyqKwVlvxQ3hBbx1LoQ2QUkLohYakEMO/view?usp=sharing))
 
 ## STORYBOARD
 
