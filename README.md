@@ -27,14 +27,13 @@
 [sprots script](https://docs.google.com/document/d/1bEp5eyESyJlo-x42p9tUfS91G_-NGfX-p9MrurC4_MY/edit?tab=t.0)
 ![News Schedule layout idea](https://github.com/9637642/TEAM-2/blob/main/Assests/News%20Schedule%20(layout%20idea).png?raw=true)
 
-News Intros
+## INTROS
 
 [Lincoln's Intro](https://drive.google.com/file/d/1tW8SCLG61TsXtlgNlBIR5bZqEYyoDPRi/view?usp=sharing)
 
 [Jack's intro](https://drive.google.com/file/d/1yvJ9wAd8m5NMgO7-cUEY-bAIOLVvY_xt/view?usp=sharing)
 
 [Oli's Intro](https://www.canva.com/design/DAGc2c9vZ0k/ik8zBX2xWGjxPHDVeJausg/edit?utm_content=DAGc2c9vZ0k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
-
 
 [Alice's News intro](https://www.canva.com/design/DAGdCTff10k/mX5HGV1305shfMQxmQ5hyQ/edit?utm_content=DAGdCTff10k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
@@ -43,6 +42,8 @@ News Intros
 [Blaze intro](https://github.com/user-attachments/assets/60dc6882-c305-4c96-a3aa-292be30f76a2)
 
 [ALICE NEWS](https://drive.google.com/file/d/1LlhwWMRIDdKMNEQ_-zvq2k1AcoHKg6ZC/view?usp=sharing)
+
+## EXIT 
 
 [jack's exit](https://drive.google.com/file/d/1KqyYf3HWMRG-IGFR6oHsW7C4W7lcqjmq/view?usp=sharing)
 
@@ -83,6 +84,8 @@ News Intros
 [updated segment video](https://drive.google.com/file/d/1qOlmESWA9iEjZ0CIo1rVIi39Hyntk34M/view?usp=sharing)
 
 [New segment video](https://www.capcut.com/editor/2EC81E9E-5B77-4402-B7B4-ABFAB85138F7?workspaceId=7478730618814300166&spaceId=7478729803068179462&utm_medium=Product&utm_source=draftshare&utm_campaign=link)
+
+## YEARBOOK
 
 [YearBook Stomp}](https://drive.google.com/file/d/1b4BJmXZXyRWyZerXtD3IdZve8o_GoSCY/view?usp=sharing)
 
