@@ -90,3 +90,7 @@
 [YearBook Stomp}](https://drive.google.com/file/d/1b4BJmXZXyRWyZerXtD3IdZve8o_GoSCY/view?usp=sharing)
 
 [second YearBook Stomp](https://drive.google.com/file/d/1v93Nh5_uXhF0u8TmYxHGZdkb9GB9w3Tg/view?usp=sharing)
+
+## GROUP ANOUNCEMENT
+
+[#1](https://drive.google.com/file/d/1iZexop9508NT_O1Zr6kt4JD5ZMkZ6XEN/view)
